@@ -1,5 +1,4 @@
 # 💫 Hi 👋, I'm Sharath Kumar
-**A passionate Data Engineer || Data Analyst**
 
 Email Me 👉 ✉️ **nsharath172@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
